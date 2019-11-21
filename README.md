@@ -29,7 +29,7 @@ When you need advice about anything related.
 ## A funny story
 
 Once my wife put a huge kitchen knife in my backpack when we went to the airport (handbagage) to " cut apples" she said.
-then on customs they asked me what im doing with half a sword in my backpack. i had no clue...
+then at customs they asked me what im doing with half a sword in my backpack. i had no clue...
 
 
 ## TL;DR
